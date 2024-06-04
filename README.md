@@ -1,8 +1,9 @@
 <p align="center">
     <img width="600" src="https://i.postimg.cc/5yP2QX3j/tumblr-050b8e492b18b20327e9a70b3f2500f7-ebec46d8-540.gif"
+        . . . 
 <p align="center">
 </br>Hi im <b>Emil</b> | He/him(<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 20 | ENTP
-<br><b>Whisper to INT</b> I'm always off tab 🫀
+<br><b>Whisper to INT</b> I'm always off tab 
 <br><b>Interests:</b> <i>Adamil</i> + more in my  <a href=https://alibaba.straw.page/>Strawpage!</a>
 <p align="center">
     <br><b>About me :3 </b>
