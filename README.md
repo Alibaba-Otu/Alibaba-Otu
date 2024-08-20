@@ -2,7 +2,7 @@
     <img width="600" src="https://i.postimg.cc/5yP2QX3j/tumblr-050b8e492b18b20327e9a70b3f2500f7-ebec46d8-540.gif"
         . . . 
 <p align="center">
-</br>Hi im <b>Emil</b> :3 (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
+</br>Hi im <b>tab </b> :3 (like the browser tab) (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
 <br><b>Whisper to INT</b> I'm always off tab 
 <br><b>Interests:</b> <i>Adamil</i> + more in my  <a href=https://alibaba.straw.page/>Strawpage!</a>
 <p align="center">
