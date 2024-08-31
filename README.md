@@ -1,13 +1,13 @@
 <p align="center">
-    <img width="600" src="https://i.postimg.cc/5yP2QX3j/tumblr-050b8e492b18b20327e9a70b3f2500f7-ebec46d8-540.gif"
+    <img width="600" src="https://i.postimg.cc/j2kvD1Hn/ezgif-4-372efdcae5.gif"
         . . . 
 <p align="center">
-</br>Hi im <b>tab </b> :3 (like the browser tab) (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
-<br><b>Whisper to INT</b> I'm always off tab 
-<br><b>Interests:</b> <i>Adamil</i> + more in my  <a href=https://alibaba.straw.page/>Strawpage!</a>
+</br>hi im <b>tab </b> :3 (like the browser tab) (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
+<br><b>whisper to INT</b> i'm always off tab 
+<br><b>interests:</b> <i>adamil</i> + more in my  <a href=https://alibaba.straw.page/>Strawpage!</a>
 <p align="center">
     <br><b>About me :3 </b>
- <br>That one Futaba whateves.. Anyway, I'm just a silly guy who has 10 million interests. <br>I'm very friendly! Don't be afraid to talk to me :3 <b> My patreon will have WAY more info abt me :3 </b>
+ <br>that one futaba whateves.. anyway, I'm just silly and who has 10 million interests. <br>i'm very friendly! don't be afraid to talk to me :3 <b> my patreon will have WAY more info abt me :3 </b>
 <p align="center">
     <br><b>DNI:</b>
- <br>Basic DNI, Proshippers, Roleplaying (I do NOT do this and will not respond) <br><b>KAELUC SHIPPERS</b>, MINORRRSSSS. :Thumbs up:
+ <br>basic DNI, proshippers, roleplaying (i do NOT do this and will not respond) <br><b>KAELUC SHIPPERS</b>, MINORRRSSSS. :Thumbs up:
