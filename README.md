@@ -1,6 +1,6 @@
 <p align="center">
     <img width="600" src="https://personacentral.com/wp-content/uploads/2016/11/Futaba-Sakura.jpg"/>
-        . . . 
+</p>    . . . 
 <p align="center">
 </br>hi im <b>tab </b> :3 (like the browser tab) (<a href=https://en.pronouns.page/@Adamilcake>+</a>) | 21 | ENTP
 <br><b>whisper to INT</b> i'm always off tab 
