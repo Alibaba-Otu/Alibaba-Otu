@@ -6,7 +6,7 @@
 <br><b>whisper to INT</b> i'm always off tab 
 <br><b>interests:</b> <i>adamil</i> + more in my  <a href=https://alibaba.straw.page/>Strawpage!</a>
 <p align="center">
-    <br><b>About me :3 </b>
+    <br><b>about me :3 </b>
  <br>that one futaba whateves.. anyway, I'm just silly and who has 10 million interests. <br>i'm very friendly! don't be afraid to talk to me :3 <b> my patreon will have WAY more info abt me :3 </b>
 <p align="center">
     <br><b>DNI:</b>
